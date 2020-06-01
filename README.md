@@ -1,2 +1,2 @@
 # icebreaker
-Copyrighted by InYour~SBzain
+Copyrighted by SBzain
